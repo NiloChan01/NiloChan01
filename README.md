@@ -1,0 +1,1 @@
+İşte öyle takılıyorum.
